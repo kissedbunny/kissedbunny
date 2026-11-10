@@ -2,4 +2,4 @@
 
 <p align="left"> <img src="https://n.uguu.se/ZdkDSrsX.jpg" width="100%">
 
-True Dollet![]() ![](https://files.catbox.moe/w9t3z6.gif)[新book](https://sayanouta.atabook.org/)
+True Dollet![]() ![](https://files.catbox.moe/w9t3z6.gif) [新book](https://sayanouta.atabook.org/)
